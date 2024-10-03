@@ -16,7 +16,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/basitalikhan10?tab=repositories](https://github.com/basitalikhan10?tab=repositories)
 
-- 💬 Ask me about **Anythink**
+- 💬 Ask me about **Anything**
 
 - 📫 How to reach me **basitalik532@gmail.com**
 
